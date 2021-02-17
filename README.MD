@@ -1,6 +1,6 @@
-# ***JACK  OF  ALL  TRADES  \\\  MASTER  OF  NONE***
+# ***NATALIE  \\\ VECTOR ARTIST***
 
-> Hello there! 👋 I'm [Nat](frgpnd.github.io), a 16y/o idiot from Poland obsessed with history, graphic design, modeling, rendering, you get the point.
+> Hello there! 👋 I'm [Nat](frgpnd.github.io), a 16y/o idiot from Poland obsessed with history, graphic design, and blender.
 >
 > I have experience with
 >
