@@ -1,4 +1,4 @@
-# ***NATALIE  \\\\\\ VECTOR ARTIST***
+# ***NATALIE  \\\\\\ PHOTOGRAPHER AND 3D ARTIST***
 
 > Hello there! 👋 I'm [Nat](frgpnd.github.io), a 16y/o idiot from Poland obsessed with history, graphic design, and blender.
 >
